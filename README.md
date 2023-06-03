@@ -11,4 +11,5 @@ They went to a university where they resonated with British and American literat
 Until that day. The day when COVID-19 was known by everyone. Their community was shut down. They experienced hunger and terror that they thought only belonged in textbooks. They witnessed people die of hunger and lack of timely treatment. They were shocked by the "epic fall of grace" of their favorite city.
 
 Everything changed after that day. Their friends started talking about things that they didn’t agree with. They hesitated about discussing ideas with them. They finally realized that there are things that they cannot change. But they can choose to remember the quotes that influenced them and bring the moments with them.
+
 People can make and send false information. But they can’t change the memory of events that truly happened. The feelings that truly existed.
